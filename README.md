@@ -1,2 +1,2 @@
-# goldenS
+# golden-S-earning
 business community
